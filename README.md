@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vebzz421
 - 👀 I’m interested in Project Developments
-- 🌱 I’m pursuing Diploma in Computer Engineering 
+- 🌱 I had completed Diploma in Computer Engineering 
 - 💞️ I’m looking to collaborate on Projects
 - 📫 Contact Me For Collaboration On Mail - vaibhavdaivadnya17@gmail.com
 
